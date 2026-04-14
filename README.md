@@ -1,1 +1,0 @@
-# My-pipi-store
